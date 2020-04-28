@@ -1,0 +1,1 @@
+# classic_winamp_skins
